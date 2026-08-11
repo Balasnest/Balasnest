@@ -10,5 +10,3 @@ I strive while utilising both the logical and creative part of the brain. I enjo
 ## Social 📱
 You can find me on the following social media platforms or send me an email:
 * 👔 [LinkedIn](https://www.linkedin.com/in/balamaruthavanan/)
-* 📷 [Instagram](https://www.instagram.com/bala_maruthavanan/)
-* ✉️ [balasnest@gmail.com](mailto:balasnest@gmail.com)
